@@ -1,4 +1,1 @@
-### 🤠 About me
-
-### ❓ Programming Languages
 
